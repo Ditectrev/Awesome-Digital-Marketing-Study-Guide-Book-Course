@@ -9,6 +9,7 @@ There are many ways to support us; in exchange, you'll get this material in a pr
 - ❤️ [shop.ditectrev.com, in EPUB or PDF formats](https://shop.ditectrev.com/product/awesome-digital-marketing-study-guide-book),
 - ▶️ [Udemy, in an interactive video course format](https://www.udemy.com/user/social-ditectrev/),
 - 🆓 [Shorter, but free, part of our Udemy course is available on YouTube](https://www.youtube.com/@Ditectrev),
+- 🖨️ [Amazon, printable physical book in paperback or hardcover (Kindle available, too)](https://www.amazon.com//Daniel-Danielecki-book/dp/B0HNCMCY19),
 - 📚 [Google Play Books, in PDF format](https://play.google.com/store/books/details?id=FlfAEQAAQBAJ),
 - 🛍️ [Etsy, in PDF format](https://ditectrev.etsy.com/listing/4454831294),
 - 🛒 [eBay, in PDF format](https://ebay.us/m/TZEQuN),
